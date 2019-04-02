@@ -1,2 +1,2 @@
-# sen
-SenroH the brand means nothing in everything
+SenroH the meaning of the brand means something in nothing, senroh is everything you could think of mainly having to do with arts but 
+everything is a form of art no matter what it is. Senroh is about having no boundaries, doing everything you want in life on this earth and being payed for it. Having limitations with yourself and work isn't always bad but to be a ble to push through them is a beautiful experience everythong has a silver lining. Good cannot exist without Evil everyone is eternal we are right now on beautiful planet earth please do not wait for someone to think you're cool or popping to start what you truly love doing and have a passion for. 
